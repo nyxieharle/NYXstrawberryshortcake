@@ -45,7 +45,7 @@ $\color{#303030}{\textsf{SIMPLE DNI LIST!!}}$ <br>
   <img width="120" height="120" alt="Tumblr_l_1463125856580977" src="https://github.com/user-attachments/assets/6fef8ceb-c500-497a-af76-d37ecc655ef6" />
 <img
  />
-pie/cy ,  blay , alyssa , abel  ,  Alex  ,  Ken |
+pie/cy ,  blay , alyssa , abel  ,  Alex |
 </details
 </td>
 </tr>
